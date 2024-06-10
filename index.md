@@ -6,3 +6,6 @@
 
 
                                               
+### Dionysus 1, 2, 3
+### O for a Muse of fire [4](https://abikesa.github.io/dionysus/intro.html)
+### Apollo 5, 6
