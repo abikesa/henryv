@@ -6,6 +6,6 @@
 
 
                                               
-### Dionysus 1, 2, 3
+### Dionysus [1](https://www.gutenberg.org/cache/epub/2250/pg2250-images.html), 2, 3
 ### O For a Muse of Fire 🔥 [4](https://abikesa.github.io/dionysus/intro.html)
 ### Apollo [5](https://www.gutenberg.org/cache/epub/2253/pg2253-images.html), [6](https://github.com/abikesa/henryv/blob/main/customs.md)
